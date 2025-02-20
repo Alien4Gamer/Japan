@@ -75,4 +75,4 @@ Der **Kappa** ist ein faszinierender Geist der japanischen Folklore, der sowohl 
 
 ---
 
-![Kappa Illustration](https://upload.wikimedia.org/wikipedia/commons/thumb/6/6d/Kappa.png/300px-Kappa.png)
+![Kappa Illustration](https://static.wikia.nocookie.net/mythology/images/5/5e/KAPPA_.jpg/revision/latest?cb=20180813113642)
